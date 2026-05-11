@@ -1,1 +1,1 @@
-# reposit-rio-artur-eloi
+# repositorio-artur-eloi
